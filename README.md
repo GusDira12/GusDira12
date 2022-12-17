@@ -6,9 +6,9 @@ it's mostly:
 - js
 - c/c++
 
-I mostly play games, and I upload/stream every 78 years or so:
+I play games and I upload/stream them every 78 years or so:
 - youtube: https://youtube.com/GusDira12/
 - twitch: https://twitch.tv/GusDira12/
 
 I am intentionally making everything here public, no bullshittery or anything. use them if you wish.
-that's all pretty much, thanks for even reading all this.
+that's all pretty much, thanks for even reading all of this.
