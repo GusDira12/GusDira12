@@ -15,7 +15,7 @@ I play games and I upload/stream them every 78 years or so:
 other things I'm interested in? here you go:
 - music (drum mostly)
 - photography (carrying a good ol' Canon 550D and a 55-250mm lens. yeah, it's old and I don't have the normal lens)
-- anime (..duh. for now, you can see them here though I'll change it soon: https://myanimelist.net/profile/GusDira12)
+- anime (..duh. you can see them here though I'll change it soon: https://myanimelist.net/profile/GusDira12)
 
 I am intentionally making everything here public, no bullshittery or anything. use them if you wish.
 
