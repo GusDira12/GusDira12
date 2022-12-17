@@ -1,5 +1,8 @@
 # About Me
 hello o/ name's gus and this is where I just throw all the code I have and leave them as is.
+
+I take CS, and is currently venturing into the depths of java and c/c++, mostly because of application. I self-learn, I hate groups most of the time.
+
 it's mostly (and not limited to):
 - java (main language for uni)
 - html/css (web stuff)
@@ -16,4 +19,5 @@ other things I'm interested in? here you go:
 - anime (..duh. for now, you can see them here: https://myanimelist.com/profile/GusDira12)
 
 I am intentionally making everything here public, no bullshittery or anything. use them if you wish.
+
 that's all pretty much, thanks for even reading all of this.
