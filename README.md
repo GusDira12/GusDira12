@@ -7,7 +7,7 @@ I take CS. stuff I do at the moment are (and not limited to especially paper rel
 - js (another web stuff)
 - c/c++ (competitive programming and other things)
 
-I play games and I upload/stream them every 78 years or so:
+I play games and I upload/stream them every 78 years or so (the linktree link below my bio has other medias I use):
 - youtube: https://youtube.com/GusDira12/ (only videos here, switching is still blank)
 - twitch: https://twitch.tv/GusDira12/ (streams go here)
 
