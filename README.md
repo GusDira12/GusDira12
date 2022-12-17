@@ -1,4 +1,4 @@
-# インテロ
+# イントロデュース
 I take CS. stuff I do at the moment are (and not limited to especially paper related):
 - java (main language for uni as one, app/other stuff as another)
 - html/css (web stuff)
