@@ -15,6 +15,7 @@ other things I'm interested in? here you go:
 - music (drum mostly)
 - photography (carrying a good ol' Canon 550D and a 55-250mm lens. yeah, it's old and I don't have the normal lens)
 - anime (..duh. you can see them here though I'll change it soon: https://myanimelist.net/profile/GusDira12)
+- language stuff (besides learning JP I usually translate words/sentences from other languages and understand it myself)
 
 I am intentionally making everything here public, no bullshittery or anything. use them if you wish.
 
