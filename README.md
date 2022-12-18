@@ -12,7 +12,7 @@ I play games and I upload/stream them every 78 years or so (the linktree link be
 - twitch: https://twitch.tv/GusDira12/ (streams go here)
 
 other things I'm interested in? here you go:
-- music (drum mostly)
+- music (drum mostly. had a kit but is now abandoned and would like to resurrect it. I also like piano)
 - photography (carrying a good ol' Canon 550D and a 55-250mm lens. yeah, it's old and I don't have the normal lens)
 - anime (..duh. you can see them here though I'll change it soon: https://myanimelist.net/profile/GusDira12)
 - language stuff (besides learning JP I usually translate words/sentences from other languages and understand it myself)
