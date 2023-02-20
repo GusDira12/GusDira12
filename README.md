@@ -1,22 +1,18 @@
-# イントロデュース
-hello o/ name's gus and this is where I throw all my coding stuff and everything else in between.
+# [イントロデュース](https://github.com/GusDira12/GusDira12)
+hello o/ this is where I throw all things from code to idk anything
 
-I take CS. stuff I do at the moment are (and not limited to especially paper related):
-- java (main language for uni as one, app/other stuff as another)
-- html/css (web stuff)
-- js (another web stuff)
-- c/c++ (competitive programming and other things)
+the stuff I do atm are:
+- java (app and stuff)
+- python (same thing basically)
+- html/css/js (web)
+- c/c++ (occasional atm, used for apps)
 
-I play games and I upload/stream them every 78 years or so (the linktree link below my bio has other medias I use):
-- youtube: https://youtube.com/GusDira12/ (only videos here, switching is still blank)
-- twitch: https://twitch.tv/GusDira12/ (streams go here)
+I'll just put these here for reference but other cool stuff I'm into are:
+- photography (pretty mild atm due to time and location but I'll try to post sometime somewhere idk)
+- languages (from just regular language to programming, the ones I like I learn quite a bit, English Literature, Japanese, and C++ are the notables)
+- music (mainly drums, currently waiting to get a kit for personal use)
+- anime (uhh yeah? waiting for update but you can check this [outdated profile](https://myanimelist.net/profile/GusDira12) for now)
 
-other things I'm interested in? here you go:
-- music (drum mostly. had a kit but it's now abandoned and would like to resurrect it. I also like piano)
-- photography (carrying a good ol' Canon 550D and a 55-250mm lens. yeah, it's old and I don't have the normal lens)
-- anime (..duh. you can see them here though I'll change it soon: https://myanimelist.net/profile/GusDira12)
-- language stuff (besides learning JP I usually translate words/sentences from other languages and understand it myself)
+feel free to use everything in this account for your own goods
 
-I am intentionally making everything here public, no bullshittery or anything. use them if you wish.
-
-that's all pretty much, thanks for even reading all of this.
+that's all pretty much, thanks for even reading all of this
