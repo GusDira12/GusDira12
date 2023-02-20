@@ -1,7 +1,7 @@
 # [イントロデュース](https://github.com/GusDira12/GusDira12)
 hello o/ this is where I throw all things from code to idk anything
 
-the stuff I do atm are:
+the stuff I do currently are:
 - java (app and stuff)
 - python (same thing basically)
 - html/css/js (web)
