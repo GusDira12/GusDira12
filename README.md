@@ -15,4 +15,4 @@ I'll just put these here for reference but other cool stuff I'm into are:
 
 feel free to use everything in this account for your own goods
 
-ゆるキャンプ⛺️
+[ゆるキャンプ⛺️](https://yurucamp.jp/)
