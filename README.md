@@ -11,7 +11,7 @@ the stuff I do currently are:
 
 I'll just put these here for reference but other cool stuff I'm into are:
 - photography (pretty mild atm due to time and location but I'll try to post sometime somewhere idk)
-- languages (from just regular language to programming, the ones I like I learn quite a bit, English Literature, Japanese, and C++ are the notables)
+- languages (Japanese and Dutch are the 2 I'm currently learning though pretty slow)
 - music (mainly drums, currently waiting to get a kit for personal use)
 - anime (uhh yeah? waiting for update but you can check this [outdated profile](https://myanimelist.net/profile/GusDira12 "my MAL profile") for now)
 
