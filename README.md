@@ -3,4 +3,4 @@
 
 all the thingies that I find cool or something I have no idea
 
-code, links, all that (even uni archives because yes)
+currently in down under doing whatever at this point
